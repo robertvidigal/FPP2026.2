@@ -4,4 +4,4 @@ Professor Robert Vidigal
 
 Teams: https://teams.live.com/l/community/FAAb0GERr8oWsBfXQ
 
-Escritório: IPOL/IREL A1 67/07 com hora marcada.
+Escritório: IPOL/IREL A1 67/07 às Ter/Qui das 18h às 19h.
