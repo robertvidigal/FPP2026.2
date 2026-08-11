@@ -1,7 +1,7 @@
 # Fundamentos de Políticas Públicas
 Universidade de Brasília, 2026.2
 
-Professor Robert Vidigal
+Professor Robert Vidigal (robert.vidigal@unb.br)
 
 Teams: https://teams.live.com/l/community/FAAb0GERr8oWsBfXQ
 
